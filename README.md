@@ -1,3 +1,3 @@
 # EAD-Project
 my ead project
-Call me senpai
+Why am I leaving it here?? I have no idea hue hue
